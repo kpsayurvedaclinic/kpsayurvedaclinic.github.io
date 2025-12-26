@@ -1,1 +1,0 @@
-# kpsayurvedaclinic.github.io
